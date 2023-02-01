@@ -1,6 +1,6 @@
 - 李建陞 | Johnson Lee based in Tainan, Taiwan 
 - 16型人格16personalities: 調停者INFP-T
-- #轉職者 
+- #轉職
 -  手機 Phone : 0971003199
 -  Gmail : jj2016025j@gmail.com
 -  Github:https://github.com/jj2016025j
